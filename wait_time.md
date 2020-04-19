@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 1050 Sunset Blvd Los Angeles CA wait time 10 mins submitted at 2020/04/19 14:46:36 PDT
+
+
+
+
 #### 1411 Main St Dallas TX submitted at 2020/04/19 14:14:13 PDT
 
 
