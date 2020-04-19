@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 1411 Main St Dallas TX submitted at 2020/04/19 14:14:13 PDT
+
+
+
+
 ####  630 Lexington Ave New York NY 10022 submitted at 2020/04/19 14:12:15 PDT
 
 
