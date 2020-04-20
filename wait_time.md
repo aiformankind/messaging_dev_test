@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 2566B Telegraph Ave, Berkeley, CA 94704 submitted at 2020/04/19 21:32:14 PDT
+
+
+
+
 #### 2690 Castro Valley Blvd, Castro Valley, CA 94546 submitted at 2020/04/19 21:24:05 PDT
 
 
