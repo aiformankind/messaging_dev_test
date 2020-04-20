@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 1050 Sunset Blvd Los Angeles CA 25 mins submitted at 2020/04/19 19:54:07 PDT
+
+
+
+
 #### 1050 W Sunset Blvd
 Los Angeles, CA  90012
 United States submitted at 2020/04/19 14:47:37 PDT
