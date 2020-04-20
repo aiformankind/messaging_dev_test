@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 2566 Telegraph Ave, Berkeley, CA 94704 submitted at 2020/04/19 21:34:41 PDT
+
+
+
+
 #### 2566B Telegraph Ave, Berkeley, CA 94704 submitted at 2020/04/19 21:34:16 PDT
 
 
