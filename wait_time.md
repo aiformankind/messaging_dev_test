@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 2690 Castro Valley Blvd, Castro Valley, CA 94546 submitted at 2020/04/19 21:24:05 PDT
+
+
+
+
 #### 1050 Sunset Blvd Los Angeles CA submitted at 2020/04/19 21:21:05 PDT
 
 
