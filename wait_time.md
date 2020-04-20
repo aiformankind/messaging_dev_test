@@ -4,6 +4,11 @@ Wait Time Now is not responsible for the accuracy of this crowdsourced data and 
 
 
 
+#### 74552 submitted at 2020/04/20 00:21:09 PDT
+
+
+
+
 #### 2132 Center St, Berkeley, CA 94704 25 mins submitted at 2020/04/19 21:40:53 PDT
 
 
